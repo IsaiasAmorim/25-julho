@@ -1,3 +1,3 @@
-# 25-julho :calendar:
+# 25-julho :date:
 
 Folha de dicas de emojis
